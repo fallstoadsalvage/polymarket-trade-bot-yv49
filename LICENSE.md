@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with automatic Polymarket Utility | stop-loss-management + sentiment-analysis, the #1 utility. Includes stop-loss-management and sentiment-analysis
 
 
 
